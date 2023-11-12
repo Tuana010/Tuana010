@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Tuana010
+- 👋 Hi, I’m @Tuana
 - 👀 I’m interested in Cyber Security
 - 🌱 I’m currently learning about everything 
 
